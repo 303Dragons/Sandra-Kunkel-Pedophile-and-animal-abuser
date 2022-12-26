@@ -1,20 +1,20 @@
 # Sandra-Kunkel-Pedophile-and-animal-abuser
-##归三零三龙所有
-##使用 Ghost Net 网页抓取
+## 归三零三龙所有
+## 使用 Ghost Net 网页抓取
 
-##xerox j 支付的服务费用
+## xerox j 支付的服务费用
 
-##Basic info:
+## Basic info:
 Name: Sandra Ann Arvilla Kunkel
 Phone Number: (509) 309-5886
 Birth Date: 08/29/2000
 
-##Email(s):
+## Email(s):
  loveanime24@outlook.com,  
 sandrakunkel00@outlook.com (recovery code: GXPPV-4EX8L-EJV5Y-TSGMR-8W4Y7),  
 sankunk00@gmail.com 
 
-##Recent password(s): 
+## Recent password(s): 
 San%kunkel00, 
 kunkel00, 
 San%Kunkel
